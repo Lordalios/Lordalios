@@ -1,0 +1,5 @@
+- Hey all , I’m @Lordalios
+- I’m interested to know more about Github
+- I’m currently learning Networking
+- I actually want your opinions or suggestions to help me improve any skills needed
+- and Thanks..
